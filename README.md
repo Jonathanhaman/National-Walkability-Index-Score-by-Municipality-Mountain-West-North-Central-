@@ -1,0 +1,1 @@
+# National-Walkability-Index-Score-by-Municipality-Mountain-West-North-Central-
